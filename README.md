@@ -2,4 +2,4 @@
 
 [참고1](https://www.youtube.com/watch?v=tVH0VTY-c8o&t=31s/)
 
-[참고2](https://www.youtube.com/watch?v=QVxK2dPJr4g/
+[참고2](https://www.youtube.com/watch?v=QVxK2dPJr4g/)
